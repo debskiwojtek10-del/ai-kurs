@@ -1,1 +1,1 @@
-# ai-kurs
+# ai-kurs sss
